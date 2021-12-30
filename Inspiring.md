@@ -3,4 +3,4 @@
 
 **You will be successful.** Don't rush your timeline. Testing can be tiresome sometimes.
 
-I am testing the file for accuracy.
+I am testing the file for accuracy and consistency.
