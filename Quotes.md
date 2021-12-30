@@ -1,0 +1,1 @@
+***You got to be strong and find strength in being alone.***
