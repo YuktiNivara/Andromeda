@@ -3,7 +3,8 @@
 
 **You will be successful.** Don't rush your timeline. Testing can be tiresome sometimes.
 
-
 We are going to be adding a few lines here and there. This file is not complete and cannot be committed.
 
 God is there. Have a good day.
+
+I am testing the file for accuracy and consistency.
