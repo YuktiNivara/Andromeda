@@ -1,3 +1,7 @@
+<<<<<<< HEAD
 ***You got to be strong and find strength in being alone.*** Those who value you, will stay by you.
+=======
+***You got to be strong and find strength in being alone.*** Thos who value you, will stay by you. Follow your heart.
+>>>>>>> 4474d879ef7fec341457aced2d575c69f07066a5
 
 **You will be successful.** Don't rush your timeline. Testing can be tiresome sometimes. Aim for the stars.
