@@ -7,4 +7,4 @@
 
 God is there. Have a good day. Always keep smiling. Hey, you made a change here. Testing! A little hard work now pays for the future.
 
-Wow! This is it. Work in progress. You will be successful.
+Wow! This is it. Work in progress. 
