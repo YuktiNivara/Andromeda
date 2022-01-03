@@ -4,4 +4,4 @@
 **You will be successful.** Don't rush your timeline. Testing can be tiresome sometimes.
 
 
-God is there. Have a good day. Always keep smiling. 
+God is there. Have a good day. Always keep smiling. A little hard work now pays for the future.
