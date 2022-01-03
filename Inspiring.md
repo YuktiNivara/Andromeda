@@ -8,5 +8,4 @@
 God is there. Have a good day. Always keep smiling. Hey, you made a change here. Testing! A little hard work now pays for the future.
 
 Wow!
-
-Work in progress
+This is it.
